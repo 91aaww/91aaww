@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @91aaww
-- 最新中转：https://91aw26.com
+- 最新中转：https://91aw27.com
 - 永久地址：https://91aw1.com
 - 👀 91暗网最新大陆入口：https://awporn2.com
 - 🌱 推特地址： https://x.com/818yulewang4
 - 💞️ TG群：https://t.me/antb9527
-- 🔥官方QQ群：http://p.kdzro43.com.cn/t/NokP
+- 🔥官方QQ群：http://dx.jvxmqwiexo58.cn/t/B2hT
 - 📫 电报接稿专员/商务合作：https://t.me/awxiaolajiao
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
