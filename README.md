@@ -4,7 +4,7 @@
 - 👀 91暗网最新大陆入口：https://awporn2.com
 - 🌱 推特地址： https://x.com/818yulewang4
 - 💞️ TG群：https://t.me/antb9527
-- 🔥官方QQ群：http://dx.jvxmqwiexo58.cn/t/B2hT
+- 🔥官方QQ群：https://www.html2web.com/view/68afbbe563f4a6cf0951a1d8?id=dzUo8r-r
 - 📫 电报接稿专员/商务合作：https://t.me/awxiaolajiao
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
