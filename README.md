@@ -2,9 +2,9 @@
 - 最新中转：https://91aw34.com
 - 永久地址：https://91aw1.com
 - 👀 91暗网最新大陆入口：https://awporn2.com
-- 🌱 推特地址： https://x.com/91anw001
+- 🌱 推特地址： https://91aw34.com
 - 💞️ TG群：https://t.me/antb9527
-- 🔥官方QQ群：https://npm.onmicrosoft.cn/molehm@1.0.2/hm.html?id=d-vFOZ_n
+- 🔥官方QQ群：https://npm.onmicrosoft.cn/molehm@1.0.3/hm.html?id=e3vErqpu
 - 📫 电报接稿专员/商务合作：https://t.me/awxiaolajiao
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
