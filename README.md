@@ -5,7 +5,7 @@
 - 🌱 推特地址： https://x.com/91anw001
 - 💞️ TG群：https://t.me/antb9527
 - 🔥官方QQ群：http://huoma.peach-av.com/t/ddptt5
-- 📫 电报接稿专员/商务合作：https://t.me/awxiaolajiao
+- 📫 电报接稿专员/商务合作：@anwangguangfang91
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
